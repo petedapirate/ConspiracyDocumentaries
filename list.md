@@ -21,6 +21,10 @@
 * **Dark Legacy II - The Assassination Of JFK Jr (2014)** [Odysee](https://odysee.com/@mygreatawakening:0/2014---Dark-Legacy-Ii---The-Assassination-Of-Jfk-Jr:3)
 * **Crossfire: The Plot That Killed Kennedy (2014)** [Odysee](https://odysee.com/@OutoftheBoxTV:d/jfgss:0)
 
+## Covid-19
+* **Plandemic (2020)** [Odysee](https://odysee.com/@www.areyouaware.tv:0/3-B-Plandemic:7)
+* **Died Suddenly (2022)** [Rumble](https://rumble.com/v5bpyvh-died-suddenly.html) | [Odysee](https://odysee.com/@YoutubeZensiert:8/DiedSuddenly:a7)
+
 **Adolf Hitler: The Greatest Story Never Told** [Odysee](https://odysee.com/@Anon:96/TheGreatestStoryNeverTold:d)
 
 **The CIA as Organized Crime** [Bitchute](https://www.bitchute.com/video/wlDV4gEhKG1k) | [Odysee](https://odysee.com/@QuantumRhino:9/The-CIA-As-Organized-Crime--Part-1--Doug-Valentine:4?lid=d6e7a7dfd97b8fc727efd09958a65a51b9fe87f5)
