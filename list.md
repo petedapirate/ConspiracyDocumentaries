@@ -52,3 +52,6 @@
 **A Noble Lie: The Oklahoma City Bombing** [Odysee](https://odysee.com/@InquireandInspire:d/A-Noble-Lie-Oklahoma-City-1995-2011:a) | [Internet Archive](https://archive.org/details/A-Noble-Lie-The-OKC-Bombing) | [Tubi](https://tubitv.com/movies/663685/a-noble-lie-oklahoma-city-1995)
 
 **Oklahoma City Bombing: Foreunner to 9/11** [Odysee](https://odysee.com/@fbfone:2/OKLAHOMA-CITY-BOMBING-Forerunner-To-9-11-A-False-Flag-Conspiracy:a)
+
+**The Reptilian Agenda** [Odysee](https://odysee.com/@ALIEN-NATION:c/David-Icke-The-Reptilian-Agenda-1:6)
+**Alien Reptilian Legacy (2015)** [Odysee](https://odysee.com/@montysthinkingoutsidethebox:2/Alien-Reptilian-Legacy:3)
