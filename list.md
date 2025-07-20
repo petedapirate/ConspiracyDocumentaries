@@ -31,9 +31,7 @@ https://odysee.com/@OutoftheBoxTV:d/jfgss:0
 
 
 
-**America: Freedom to Fascism**
-
-https://rumble.com/v24okz2-america-freedom-to-fascism-by-aaron-russo.html
+**America: Freedom to Fascism** [Rumble](https://rumble.com/v24okz2-america-freedom-to-fascism-by-aaron-russo.html) | [Internet Archive](https://archive.org/details/freedom_to_fascism)
 
 
 
