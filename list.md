@@ -18,43 +18,23 @@
 * **Are The Jews God's Chosen People?** [Odysee](https://odysee.com/@hipsterious:3/Are-the-Jews-Gods-Chosen-People2:2)
 * **In The Name of Zion** [Rumble](https://rumble.com/v25onps-documentary-in-the-name-of-zion.-when-you-know-the-truth-you-cannot-be-deci.html) | [Internet Archive](https://archive.org/details/inthenameofzion)
 
-**Adolf Hitler: The Greatest Story Never Told**
+**Adolf Hitler: The Greatest Story Never Told** [Odysee](https://odysee.com/@Anon:96/TheGreatestStoryNeverTold:d)
 
-https://odysee.com/@Anon:96/TheGreatestStoryNeverTold:d
+**JFK: Crossfire** [Odysee](https://odysee.com/@OutoftheBoxTV:d/jfgss:0)
 
-**JFK: Crossfire**
-
-https://odysee.com/@OutoftheBoxTV:d/jfgss:0
-
- - **The CIA as Organized Crime**
-	 - https://www.bitchute.com/video/wlDV4gEhKG1k
-	 - [https://odysee.com/@QuantumRhino:9/The-CIA-As-Organized-Crime--Part-1--Doug-Valentine:4?lid=d6e7a7dfd97b8fc727efd09958a65a51b9fe87f5](https://odysee.com/@QuantumRhino:9/The-CIA-As-Organized-Crime--Part-1--Doug-Valentine:4?lid=d6e7a7dfd97b8fc727efd09958a65a51b9fe87f5)
-
-
+**The CIA as Organized Crime** [Bitchute](https://www.bitchute.com/video/wlDV4gEhKG1k) | [Odysee](https://odysee.com/@QuantumRhino:9/The-CIA-As-Organized-Crime--Part-1--Doug-Valentine:4?lid=d6e7a7dfd97b8fc727efd09958a65a51b9fe87f5)
 
 **America: Freedom to Fascism** [Rumble](https://rumble.com/v24okz2-america-freedom-to-fascism-by-aaron-russo.html) | [Internet Archive](https://archive.org/details/freedom_to_fascism)
 
-
-
 **The Secret Masonic History of WWW2** [Bitchute](https://www.bitchute.com/video/PBpRr2HdM9pk)
 
-**Hellstorm**
+**Hellstorm** [Bitchute](https://www.bitchute.com/video/1udoqops93TE)
 
-https://www.bitchute.com/video/1udoqops93TE
+**EUROPA: The Last Battle** [Odysee](https://odysee.com/$/playlist/9dc20ab5ef90cec31a65eae6d8d8438191f6d0d3)
 
+**Old World Order** [Odysee](https://odysee.com/@Happy:9/Oldworldorder:e)
 
-
-**EUROPA: The Last Battle**
-
-https://odysee.com/$/playlist/9dc20ab5ef90cec31a65eae6d8d8438191f6d0d3
-
-**Old World Order**
-
-https://odysee.com/@Happy:9/Oldworldorder:e
-
-**Woke: The Movie**
-
-https://odysee.com/@QuantumRhino:9/Woke--The-Movie-(2021):e
+**Woke: The Movie** [Odysee](https://odysee.com/@QuantumRhino:9/Woke--The-Movie-(2021):e)
 
 **New World Order: Communism By Backdoor** [Odysee](https://odysee.com/@QuestionEverything:7a8/New-World-Order:30) | [Internet Archive](https://archive.org/details/Project1_20180128)
 
