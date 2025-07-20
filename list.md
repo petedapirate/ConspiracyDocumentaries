@@ -66,6 +66,6 @@ https://odysee.com/@QuantumRhino:9/Woke--The-Movie-(2021):e
 * **Waco: The Big Lie** [Youtube](https://www.youtube.com/watch?v=PQ1b-PHdFZU)
 * **Waco II, The Big Lie Continues** [Odysee](https://odysee.com/@samulelawless:d/Waco-II--The-Big-Lie-Continues:9)
 
-**A Noble Lie: The Oklahoma City Bombing** [Odysee](https://odysee.com/@InquireandInspire:d/A-Noble-Lie-Oklahoma-City-1995-2011:a)
+**A Noble Lie: The Oklahoma City Bombing** [Odysee](https://odysee.com/@InquireandInspire:d/A-Noble-Lie-Oklahoma-City-1995-2011:a) | [Internet Archive](https://archive.org/details/A-Noble-Lie-The-OKC-Bombing) | [Tubi](https://tubitv.com/movies/663685/a-noble-lie-oklahoma-city-1995)
 
 **Oklahoma City Bombing: Foreunner to 9/11** [Odysee](https://odysee.com/@fbfone:2/OKLAHOMA-CITY-BOMBING-Forerunner-To-9-11-A-False-Flag-Conspiracy:a)
