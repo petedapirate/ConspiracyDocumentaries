@@ -12,7 +12,7 @@
 ## Israel
 
 * **Why The Jews Are Not God's Chosen People (2024)** [Youtube](https://www.youtube.com/watch?v=zN5lvSoICOI)
-* **Marching to Zion** [Bitchute](https://www.bitchute.com/video/BTkVfJNeUVe6) | [Internet Archive](https://archive.org/details/youtube-lvYg807dyFk)
+* **Marching to Zion** [Bitchute](https://www.bitchute.com/video/BTkVfJNeUVe6) | [Internet Archive](https://archive.org/details/youtube-lvYg807dyFk) | [Odysee](https://odysee.com/@TrueHistory:2/Marching-to-Zion---documantary-(Full-Movie).-God's-chosen-people.-Pastor-Steven-Anderson:6)
 * **Israel's Second 9/11: How Zionism Conquered JFK, America, and Palestine** [Odysee](https://odysee.com/@QuantumRhino:9/Israel%27s-Second-9-11--How-Zionism-Conquered-JFK,-America,-and-Palestine-%282024%29:5)
 * **Roadmap to Apartheid** [Odysee](https://odysee.com/@TheHiddenMystery:c/roadmap-to-apartheid:c)
 * **Are The Jews God's Chosen People?** [Odysee](https://odysee.com/@hipsterious:3/Are-the-Jews-Gods-Chosen-People2:2)
