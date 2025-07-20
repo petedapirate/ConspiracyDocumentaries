@@ -24,55 +24,69 @@
 
 https://rumble.com/v12urxr-september-11-the-new-pearl-harbor.html
 
-Adolf Hitler: The Greatest Story Never Told
+## Israel
+
+**Marching to Zion**
+
+* https://www.bitchute.com/video/BTkVfJNeUVe6
+
+**Israel's Second 9/11: How Zionism Conquered JFK, America, and Palestine**
+
+* [https://odysee.com/@QuantumRhino:9/Israel's-Second-9-11--How-Zionism-Conquered-JFK,-America,-and-Palestine-(2024):5](https://odysee.com/@QuantumRhino:9/Israel%27s-Second-9-11--How-Zionism-Conquered-JFK,-America,-and-Palestine-%282024%29:5)
+
+**Roadmap to Apartheid**
+
+* https://odysee.com/@TheHiddenMystery:c/roadmap-to-apartheid:c
+
+**Are The Jews God's Chosen People?**
+
+* https://odysee.com/@hipsterious:3/Are-the-Jews-Gods-Chosen-People2:2
+
+**In The Name of Zion**
+
+* https://rumble.com/v25onps-documentary-in-the-name-of-zion.-when-you-know-the-truth-you-cannot-be-deci.html
+
+**Adolf Hitler: The Greatest Story Never Told**
 
 https://odysee.com/@Anon:96/TheGreatestStoryNeverTold:d
 
-JFK: Crossfire
+**JFK: Crossfire**
 
 https://odysee.com/@OutoftheBoxTV:d/jfgss:0
 
- - The CIA as Organized Crime
+ - **The CIA as Organized Crime**
 	 - https://www.bitchute.com/video/wlDV4gEhKG1k
 	 - [https://odysee.com/@QuantumRhino:9/The-CIA-As-Organized-Crime--Part-1--Doug-Valentine:4?lid=d6e7a7dfd97b8fc727efd09958a65a51b9fe87f5](https://odysee.com/@QuantumRhino:9/The-CIA-As-Organized-Crime--Part-1--Doug-Valentine:4?lid=d6e7a7dfd97b8fc727efd09958a65a51b9fe87f5)
 
-Israel's Second 9/11: How Zionism Conquered JFK, America, and Palestine
 
-[https://odysee.com/@QuantumRhino:9/Israel's-Second-9-11--How-Zionism-Conquered-JFK,-America,-and-Palestine-(2024):5](https://odysee.com/@QuantumRhino:9/Israel%27s-Second-9-11--How-Zionism-Conquered-JFK,-America,-and-Palestine-%282024%29:5)
 
-America: Freedom to Fascism
+**America: Freedom to Fascism**
 
 https://rumble.com/v24okz2-america-freedom-to-fascism-by-aaron-russo.html
 
-Roadmap to Apartheid
 
-https://odysee.com/@TheHiddenMystery:c/roadmap-to-apartheid:c
 
-Are The Jews God's Chosen People?
 
-https://odysee.com/@hipsterious:3/Are-the-Jews-Gods-Chosen-People2:2
 
-Hellstorm
+**Hellstorm**
 
 https://www.bitchute.com/video/1udoqops93TE
 
-In The Name of Zion
 
-https://rumble.com/v25onps-documentary-in-the-name-of-zion.-when-you-know-the-truth-you-cannot-be-deci.html
 
-EUROPA: The Last Battle
+**EUROPA: The Last Battle**
 
 https://odysee.com/$/playlist/9dc20ab5ef90cec31a65eae6d8d8438191f6d0d3
 
-Old World Order
+**Old World Order**
 
 https://odysee.com/@Happy:9/Oldworldorder:e
 
-Woke: The Movie
+**Woke: The Movie**
 
 https://odysee.com/@QuantumRhino:9/Woke--The-Movie-(2021):e
 
-New World Order: Communism By Backdoor
+**New World Order: Communism By Backdoor**
 
 https://odysee.com/@QuestionEverything:7a8/New-World-Order:30
 
