@@ -25,6 +25,12 @@
 * **Plandemic (2020)** [Odysee](https://odysee.com/@www.areyouaware.tv:0/3-B-Plandemic:7)
 * **Died Suddenly (2022)** [Rumble](https://rumble.com/v5bpyvh-died-suddenly.html) | [Odysee](https://odysee.com/@YoutubeZensiert:8/DiedSuddenly:a7)
 
+## New World Order
+* **Invisible Empire: A New World Order (2010)** [Rumble]https://rumble.com/v33pdpd-invisible-empire-new-world-order-alex-jones-infowars-documentary.html)
+* **Old World Order** [Odysee](https://odysee.com/@Happy:9/Oldworldorder:e)
+* **New World Order: Communism By Backdoor** [Odysee](https://odysee.com/@QuestionEverything:7a8/New-World-Order:30) | [Internet Archive](https://archive.org/details/Project1_20180128)
+* **JFK to 9/11: Everything is a Rich Man's Trick** [Rumble](https://rumble.com/v2czv70-jfk-to-911-everything-is-a-rich-mans-trick-documentary.html) | [Internet Archive](https://archive.org/details/y-2meta.app-everything-is-a-rich-mans-trick-full-documentary)
+
 **Adolf Hitler: The Greatest Story Never Told** [Odysee](https://odysee.com/@Anon:96/TheGreatestStoryNeverTold:d)
 
 **The CIA as Organized Crime** [Bitchute](https://www.bitchute.com/video/wlDV4gEhKG1k) | [Odysee](https://odysee.com/@QuantumRhino:9/The-CIA-As-Organized-Crime--Part-1--Doug-Valentine:4?lid=d6e7a7dfd97b8fc727efd09958a65a51b9fe87f5)
@@ -37,13 +43,7 @@
 
 **EUROPA: The Last Battle** [Odysee](https://odysee.com/$/playlist/9dc20ab5ef90cec31a65eae6d8d8438191f6d0d3) | [Internet Archive](https://archive.org/details/documentary-europa-the-last-battle_202112)
 
-**Old World Order** [Odysee](https://odysee.com/@Happy:9/Oldworldorder:e)
-
 **Woke: The Movie** [Odysee](https://odysee.com/@QuantumRhino:9/Woke--The-Movie-(2021):e) | [Rumble](https://rumble.com/vd34qr-woke-the-movie-full-conspiracy-documentary.html)
-
-**New World Order: Communism By Backdoor** [Odysee](https://odysee.com/@QuestionEverything:7a8/New-World-Order:30) | [Internet Archive](https://archive.org/details/Project1_20180128)
-
-**JFK to 9/11: Everything is a Rich Man's Trick** [Rumble](https://rumble.com/v2czv70-jfk-to-911-everything-is-a-rich-mans-trick-documentary.html) | [Internet Archive](https://archive.org/details/y-2meta.app-everything-is-a-rich-mans-trick-full-documentary)
 
 ## Waco
 * **Waco: The Rules of Engagement** [Rumble](https://rumble.com/v1320g3-waco-rules-of-engagement-documentary.html?e9s=src_v1_s%2Csrc_v1_s_m) | [Bitchute](https://www.bitchute.com/video/mJzUWoaY4R3c) | [Odysee](https://odysee.com/@NotSure1984:1/Waco---The-Rules-Of-Engagement-(1997):9)
