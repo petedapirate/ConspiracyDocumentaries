@@ -6,7 +6,7 @@
 * **Loose Change (2005)** [Rumble](https://rumble.com/vs3quw-american-coup-1st-edition-2005.html) | [Bitchute](https://www.bitchute.com/video/KEcATSpi9c0j) | [Odysee](https://odysee.com/@Chiron_Last_not:e/loose_change:3)
 * **Zero: An Investigation in to 9/11 (2007)** [Rumble](https://rumble.com/v699e21-zero-an-investigation-into-911.html) | [Bitchute](https://www.bitchute.com/video/50egQWgGATs) | [Odysee](https://odysee.com/@woowoo:6/911Zero:3)
 * **September 11: The New Pearl Harbor (2013)** [Rumble](https://rumble.com/v12urxr-september-11-the-new-pearl-harbor.html) | [Youtube](https://www.youtube.com/watch?v=8DOnAn_PX6M)
-* **9/11: Decade of Deception (2015)** [Tubi](https://tubitv.com/movies/100018432/9-11-decade-of-deception) | [Youtube](https://www.youtube.com/watch?v=TjgP6Cbr2Eo)
+* **9/11: Decade of Deception (2015)** [Odysee](https://odysee.com/9-11-Decade-of-Deception:0) | [Tubi](https://tubitv.com/movies/100018432/9-11-decade-of-deception) | [Youtube](https://www.youtube.com/watch?v=TjgP6Cbr2Eo)
 
 
 ## Israel
