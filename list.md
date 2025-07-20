@@ -10,11 +10,15 @@
 
 **Loose Change**
 
-https://www.bitchute.com/video/KEcATSpi9c0j
+* https://www.bitchute.com/video/KEcATSpi9c0j
+* https://odysee.com/@Chiron_Last_not:e/loose_change:3
+* https://rumble.com/vs3quw-american-coup-1st-edition-2005.html
 
 **Zero: An Investigation in to 9/11**
 
-https://odysee.com/@woowoo:6/911Zero:3
+* https://odysee.com/@woowoo:6/911Zero:3
+* https://rumble.com/v699e21-zero-an-investigation-into-911.html
+* https://www.bitchute.com/video/50egQWgGATs
 
 **September 11: The New Pearl Harbor**
 
