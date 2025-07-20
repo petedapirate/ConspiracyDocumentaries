@@ -4,7 +4,9 @@
 
 **9/11 In Plane Sight**
 
-https://rumble.com/v1jj61j-911-in-plane-sight..html
+* https://rumble.com/v1jj61j-911-in-plane-sight..html
+* https://www.bitchute.com/video/WNpZEF7WTaNs
+* https://odysee.com/@jhart1228:5/911-In-Plane-Sight-%28Director%27s-Cut%29:0
 
 **Loose Change**
 
