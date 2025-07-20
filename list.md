@@ -26,7 +26,7 @@
 
 **The CIA as Organized Crime** [Bitchute](https://www.bitchute.com/video/wlDV4gEhKG1k) | [Odysee](https://odysee.com/@QuantumRhino:9/The-CIA-As-Organized-Crime--Part-1--Doug-Valentine:4?lid=d6e7a7dfd97b8fc727efd09958a65a51b9fe87f5)
 
-**America: Freedom to Fascism** [Rumble](https://rumble.com/v24okz2-america-freedom-to-fascism-by-aaron-russo.html) | [Internet Archive](https://archive.org/details/freedom_to_fascism)
+**America: Freedom to Fascism** [Odysee](https://odysee.com/@mygreatawakening:0/2006---America-Freedom-To-Fascism:0) | [Rumble](https://rumble.com/v24okz2-america-freedom-to-fascism-by-aaron-russo.html) | [Internet Archive](https://archive.org/details/freedom_to_fascism)
 
 **The Secret Masonic History of WWW2** [Bitchute](https://www.bitchute.com/video/PBpRr2HdM9pk)
 
