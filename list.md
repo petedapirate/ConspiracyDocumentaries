@@ -11,14 +11,8 @@
 ## Israel
 
 * **Why The Jews Are Not God's Chosen People (2024)** [Youtube](https://www.youtube.com/watch?v=zN5lvSoICOI)
-
-**Marching to Zion**
-
-* https://www.bitchute.com/video/BTkVfJNeUVe6
-
-**Israel's Second 9/11: How Zionism Conquered JFK, America, and Palestine**
-
-* [https://odysee.com/@QuantumRhino:9/Israel's-Second-9-11--How-Zionism-Conquered-JFK,-America,-and-Palestine-(2024):5](https://odysee.com/@QuantumRhino:9/Israel%27s-Second-9-11--How-Zionism-Conquered-JFK,-America,-and-Palestine-%282024%29:5)
+* **Marching to Zion** [Bitchute](https://www.bitchute.com/video/BTkVfJNeUVe6)
+* **Israel's Second 9/11: How Zionism Conquered JFK, America, and Palestine** [Odysee](https://odysee.com/@QuantumRhino:9/Israel%27s-Second-9-11--How-Zionism-Conquered-JFK,-America,-and-Palestine-%282024%29:5)
 
 **Roadmap to Apartheid**
 
