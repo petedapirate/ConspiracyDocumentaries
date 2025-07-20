@@ -89,3 +89,5 @@ https://rumble.com/v2czv70-jfk-to-911-everything-is-a-rich-mans-trick-documentar
 * **Waco: The Rules of Engagement** [Rumble](https://rumble.com/v1320g3-waco-rules-of-engagement-documentary.html?e9s=src_v1_s%2Csrc_v1_s_m) | [Bitchute](https://www.bitchute.com/video/mJzUWoaY4R3c) | [Odysee](https://odysee.com/@NotSure1984:1/Waco---The-Rules-Of-Engagement-(1997):9)
 
 **A Noble Lie: The Oklahoma City Bombing** [Odysee](https://odysee.com/@InquireandInspire:d/A-Noble-Lie-Oklahoma-City-1995-2011:a)
+
+**Oklahoma City Bombing: Foreunner to 9/11** [Odysee](https://odysee.com/@fbfone:2/OKLAHOMA-CITY-BOMBING-Forerunner-To-9-11-A-False-Flag-Conspiracy:a)
