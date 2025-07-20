@@ -2,13 +2,8 @@
 
 ## 9/11
 
-**9/11 In Plane Sight**  [Rumble](https://rumble.com/v1jj61j-911-in-plane-sight..html) | [Bitchute](https://www.bitchute.com/video/WNpZEF7WTaNs) | [Odysee](https://odysee.com/@jhart1228:5/911-In-Plane-Sight-%28Director%27s-Cut%29:0)
-
-**Loose Change**
-
-* https://www.bitchute.com/video/KEcATSpi9c0j
-* https://odysee.com/@Chiron_Last_not:e/loose_change:3
-* https://rumble.com/vs3quw-american-coup-1st-edition-2005.html
+* **9/11 In Plane Sight**  [Rumble](https://rumble.com/v1jj61j-911-in-plane-sight..html) | [Bitchute](https://www.bitchute.com/video/WNpZEF7WTaNs) | [Odysee](https://odysee.com/@jhart1228:5/911-In-Plane-Sight-%28Director%27s-Cut%29:0)
+* **Loose Change** [Rumble](https://rumble.com/vs3quw-american-coup-1st-edition-2005.html) | [Bitchute](https://www.bitchute.com/video/KEcATSpi9c0j) | [Odysee](https://odysee.com/@Chiron_Last_not:e/loose_change:3)
 
 **Zero: An Investigation in to 9/11**
 
