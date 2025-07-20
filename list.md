@@ -1,5 +1,3 @@
-
-
 ## 9/11
 
 * **9/11 In Plane Sight (2004)**  [Rumble](https://rumble.com/v1jj61j-911-in-plane-sight..html) | [Bitchute](https://www.bitchute.com/video/WNpZEF7WTaNs) | [Odysee](https://odysee.com/@jhart1228:5/911-In-Plane-Sight-%28Director%27s-Cut%29:0)
@@ -17,6 +15,7 @@
 * **Roadmap to Apartheid** [Odysee](https://odysee.com/@TheHiddenMystery:c/roadmap-to-apartheid:c)
 * **Are The Jews God's Chosen People?** [Odysee](https://odysee.com/@hipsterious:3/Are-the-Jews-Gods-Chosen-People2:2)
 * **In The Name of Zion** [Rumble](https://rumble.com/v25onps-documentary-in-the-name-of-zion.-when-you-know-the-truth-you-cannot-be-deci.html) | [Internet Archive](https://archive.org/details/inthenameofzion)
+* **Occupied (2024)** [Rumble](https://rumble.com/v5smqjz-occupied-world-premiere.html) | [Internet Archive](https://archive.org/details/occupied_202411) | [Odysee](https://odysee.com/@greatawakening:c/occupied:a)
 
 ## JFK Assassination
 * **Dark Legacy II - The Assassination Of JFK Jr (2014)** [Odysee](https://odysee.com/@mygreatawakening:0/2014---Dark-Legacy-Ii---The-Assassination-Of-Jfk-Jr:3)
