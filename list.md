@@ -15,7 +15,7 @@
 * **Israel's Second 9/11: How Zionism Conquered JFK, America, and Palestine** [Odysee](https://odysee.com/@QuantumRhino:9/Israel%27s-Second-9-11--How-Zionism-Conquered-JFK,-America,-and-Palestine-%282024%29:5)
 * **Roadmap to Apartheid** [Odysee](https://odysee.com/@TheHiddenMystery:c/roadmap-to-apartheid:c)
 * **Are The Jews God's Chosen People?** [Odysee](https://odysee.com/@hipsterious:3/Are-the-Jews-Gods-Chosen-People2:2)
-* **In The Name of Zion** [Rumble](https://rumble.com/v25onps-documentary-in-the-name-of-zion.-when-you-know-the-truth-you-cannot-be-deci.html)
+* **In The Name of Zion** [Rumble](https://rumble.com/v25onps-documentary-in-the-name-of-zion.-when-you-know-the-truth-you-cannot-be-deci.html) | [Internet Archive](https://archive.org/details/inthenameofzion)
 
 **Adolf Hitler: The Greatest Story Never Told**
 
