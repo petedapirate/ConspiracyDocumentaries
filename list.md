@@ -84,3 +84,6 @@ https://odysee.com/@QuestionEverything:7a8/New-World-Order:30
 JFK to 9/11: Everything is a Rich Man's Trick
 
 https://rumble.com/v2czv70-jfk-to-911-everything-is-a-rich-mans-trick-documentary.html
+
+## Waco
+* **Waco: The Rules of Engagement** [Rumble](https://rumble.com/v1320g3-waco-rules-of-engagement-documentary.html?e9s=src_v1_s%2Csrc_v1_s_m) | [Bitchute](https://www.bitchute.com/video/mJzUWoaY4R3c) | [Odysee](https://odysee.com/@NotSure1984:1/Waco---The-Rules-Of-Engagement-(1997):9)
