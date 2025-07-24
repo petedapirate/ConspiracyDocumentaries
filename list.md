@@ -33,18 +33,20 @@
 * **Old World Order** [Odysee](https://odysee.com/@Happy:9/Oldworldorder:e)
 * **New World Order: Communism By Backdoor** [Odysee](https://odysee.com/@QuestionEverything:7a8/New-World-Order:30) | [Internet Archive](https://archive.org/details/Project1_20180128)
 * **JFK to 9/11: Everything is a Rich Man's Trick** [Rumble](https://rumble.com/v2czv70-jfk-to-911-everything-is-a-rich-mans-trick-documentary.html) | [Internet Archive](https://archive.org/details/y-2meta.app-everything-is-a-rich-mans-trick-full-documentary)
+* **The CIA as Organized Crime** [Bitchute](https://www.bitchute.com/video/wlDV4gEhKG1k) | [Odysee](https://odysee.com/@QuantumRhino:9/The-CIA-As-Organized-Crime--Part-1--Doug-Valentine:4?lid=d6e7a7dfd97b8fc727efd09958a65a51b9fe87f5)
 
+## History 
 **Adolf Hitler: The Greatest Story Never Told** [Odysee](https://odysee.com/@Anon:96/TheGreatestStoryNeverTold:d)
+**The Secret Masonic History of WWW2** [Bitchute](https://www.bitchute.com/video/PBpRr2HdM9pk)
+**Hellstorm** [Bitchute](https://www.bitchute.com/video/1udoqops93TE)
+**EUROPA: The Last Battle** [Odysee](https://odysee.com/$/playlist/9dc20ab5ef90cec31a65eae6d8d8438191f6d0d3) | [Internet Archive](https://archive.org/details/documentary-europa-the-last-battle_202112)
 
-**The CIA as Organized Crime** [Bitchute](https://www.bitchute.com/video/wlDV4gEhKG1k) | [Odysee](https://odysee.com/@QuantumRhino:9/The-CIA-As-Organized-Crime--Part-1--Doug-Valentine:4?lid=d6e7a7dfd97b8fc727efd09958a65a51b9fe87f5)
 
 **America: Freedom to Fascism** [Odysee](https://odysee.com/@mygreatawakening:0/2006---America-Freedom-To-Fascism:0) | [Rumble](https://rumble.com/v24okz2-america-freedom-to-fascism-by-aaron-russo.html) | [Internet Archive](https://archive.org/details/freedom_to_fascism)
 
-**The Secret Masonic History of WWW2** [Bitchute](https://www.bitchute.com/video/PBpRr2HdM9pk)
 
-**Hellstorm** [Bitchute](https://www.bitchute.com/video/1udoqops93TE)
 
-**EUROPA: The Last Battle** [Odysee](https://odysee.com/$/playlist/9dc20ab5ef90cec31a65eae6d8d8438191f6d0d3) | [Internet Archive](https://archive.org/details/documentary-europa-the-last-battle_202112)
+
 
 **Woke: The Movie** [Odysee](https://odysee.com/@QuantumRhino:9/Woke--The-Movie-(2021):e) | [Rumble](https://rumble.com/vd34qr-woke-the-movie-full-conspiracy-documentary.html)
 
