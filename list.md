@@ -25,6 +25,7 @@
 * **JFK Revisited: Through The Looking Glass (2021)** [Odysee](https://odysee.com/@InquireandInspire:d/JFK-Revisited-Through-The-Looking-Glass-(2021):2) | [Bitchute](https://www.bitchute.com/video/1njiVIDGUfi8)
 
 ## Covid-19
+* **Vaxxed: From Cover-Up to Catastrophe (2016)** [Odysee](https://odysee.com/@freefromcensorship:7/vaxxed:6b) | [Bitchute](https://www.bitchute.com/video/WBzD7RKTmYlv)
 * **Plandemic (2020)** [Odysee](https://odysee.com/@www.areyouaware.tv:0/3-B-Plandemic:7)
 * **Died Suddenly (2022)** [Rumble](https://rumble.com/v5bpyvh-died-suddenly.html) | [Odysee](https://odysee.com/@YoutubeZensiert:8/DiedSuddenly:a7)
 
