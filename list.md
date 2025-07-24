@@ -26,12 +26,13 @@
 
 ## Covid-19
 * **Vaxxed: From Cover-Up to Catastrophe (2016)** [Odysee](https://odysee.com/@freefromcensorship:7/vaxxed:6b) | [Bitchute](https://www.bitchute.com/video/WBzD7RKTmYlv)
+* **Vaxxed 2** [Odysee](https://odysee.com/@BeAwareChannel:3/Vaxxed-2-_-Childrens-Health-Defense:a)
 * **Plandemic (2020)** [Odysee](https://odysee.com/@www.areyouaware.tv:0/3-B-Plandemic:7)
 * **Vaxxed Nation (2021)** [Bitchute](https://www.bitchute.com/video/vpaMO02cKwhO)
 * **Died Suddenly (2022)** [Rumble](https://rumble.com/v5bpyvh-died-suddenly.html) | [Odysee](https://odysee.com/@YoutubeZensiert:8/DiedSuddenly:a7)
 
 ## New World Order
-* **Invisible Empire: A New World Order (2010)** [Rumble](https://rumble.com/v33pdpd-invisible-empire-new-world-order-alex-jones-infowars-documentary.html)
+* **Invisible Empire: A New World Order (2010)** [Rumble](https://rumble.com/v33pdpd-invisible-empire-new-world-order-alex-jones-infowars-documentary.html) | [Odysee](https://odysee.com/@BNN_Films:a/Invisible-Empire-A-New-World-Order-Defined:2)
 * **Old World Order** [Odysee](https://odysee.com/@Happy:9/Oldworldorder:e)
 * **New World Order: Communism By Backdoor** [Odysee](https://odysee.com/@QuestionEverything:7a8/New-World-Order:30) | [Internet Archive](https://archive.org/details/Project1_20180128)
 * **JFK to 9/11: Everything is a Rich Man's Trick** [Rumble](https://rumble.com/v2czv70-jfk-to-911-everything-is-a-rich-mans-trick-documentary.html) | [Internet Archive](https://archive.org/details/y-2meta.app-everything-is-a-rich-mans-trick-full-documentary)
