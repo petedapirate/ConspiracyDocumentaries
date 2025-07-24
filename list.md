@@ -22,6 +22,7 @@
 ## JFK Assassination
 * **Dark Legacy II - The Assassination Of JFK Jr (2014)** [Odysee](https://odysee.com/@mygreatawakening:0/2014---Dark-Legacy-Ii---The-Assassination-Of-Jfk-Jr:3)
 * **Crossfire: The Plot That Killed Kennedy (2014)** [Odysee](https://odysee.com/@OutoftheBoxTV:d/jfgss:0)
+* **JFK Revisited: Through The Looking Glass (2021)** [Odysee](https://odysee.com/@InquireandInspire:d/JFK-Revisited-Through-The-Looking-Glass-(2021):2) | [Bitchute](https://www.bitchute.com/video/1njiVIDGUfi8)
 
 ## Covid-19
 * **Plandemic (2020)** [Odysee](https://odysee.com/@www.areyouaware.tv:0/3-B-Plandemic:7)
