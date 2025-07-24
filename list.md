@@ -16,6 +16,8 @@
 * **Are The Jews God's Chosen People?** [Odysee](https://odysee.com/@hipsterious:3/Are-the-Jews-Gods-Chosen-People2:2)
 * **In The Name of Zion** [Rumble](https://rumble.com/v25onps-documentary-in-the-name-of-zion.-when-you-know-the-truth-you-cannot-be-deci.html) | [Internet Archive](https://archive.org/details/inthenameofzion)
 * **Occupied (2024)** [Rumble](https://rumble.com/v5smqjz-occupied-world-premiere.html) | [Internet Archive](https://archive.org/details/occupied_202411) | [Odysee](https://odysee.com/@greatawakening:c/occupied:a)
+* **Israelism (2023)** [Odysee](https://odysee.com/@QuestionTheAnswers:2/Israelism:13) | [Rumble](https://rumble.com/v6vppff-israelism-2023.html)
+* **The Occupation of the American Mind (2016)** [Odysee](https://odysee.com/@Qwinten:b/THE-OCCUPATION-OF-THE-AMERICAN-MIND:29)
 
 ## JFK Assassination
 * **Dark Legacy II - The Assassination Of JFK Jr (2014)** [Odysee](https://odysee.com/@mygreatawakening:0/2014---Dark-Legacy-Ii---The-Assassination-Of-Jfk-Jr:3)
