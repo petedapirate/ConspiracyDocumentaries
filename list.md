@@ -27,6 +27,7 @@
 ## Covid-19
 * **Vaxxed: From Cover-Up to Catastrophe (2016)** [Odysee](https://odysee.com/@freefromcensorship:7/vaxxed:6b) | [Bitchute](https://www.bitchute.com/video/WBzD7RKTmYlv)
 * **Plandemic (2020)** [Odysee](https://odysee.com/@www.areyouaware.tv:0/3-B-Plandemic:7)
+* **Vaxxed Nation (2021)** [Bitchute](https://www.bitchute.com/video/vpaMO02cKwhO)
 * **Died Suddenly (2022)** [Rumble](https://rumble.com/v5bpyvh-died-suddenly.html) | [Odysee](https://odysee.com/@YoutubeZensiert:8/DiedSuddenly:a7)
 
 ## New World Order
