@@ -36,10 +36,11 @@
 * **The CIA as Organized Crime** [Bitchute](https://www.bitchute.com/video/wlDV4gEhKG1k) | [Odysee](https://odysee.com/@QuantumRhino:9/The-CIA-As-Organized-Crime--Part-1--Doug-Valentine:4?lid=d6e7a7dfd97b8fc727efd09958a65a51b9fe87f5)
 
 ## History 
-**Adolf Hitler: The Greatest Story Never Told** [Odysee](https://odysee.com/@Anon:96/TheGreatestStoryNeverTold:d)
-**The Secret Masonic History of WWW2** [Bitchute](https://www.bitchute.com/video/PBpRr2HdM9pk)
-**Hellstorm** [Bitchute](https://www.bitchute.com/video/1udoqops93TE)
-**EUROPA: The Last Battle** [Odysee](https://odysee.com/$/playlist/9dc20ab5ef90cec31a65eae6d8d8438191f6d0d3) | [Internet Archive](https://archive.org/details/documentary-europa-the-last-battle_202112)
+* **Adolf Hitler: The Greatest Story Never Told** [Odysee](https://odysee.com/@Anon:96/TheGreatestStoryNeverTold:d)
+* **The Secret Masonic History of WWW2** [Bitchute](https://www.bitchute.com/video/PBpRr2HdM9pk)
+* **Hellstorm** [Bitchute](https://www.bitchute.com/video/1udoqops93TE)
+* **EUROPA: The Last Battle** [Odysee](https://odysee.com/$/playlist/9dc20ab5ef90cec31a65eae6d8d8438191f6d0d3) | [Internet Archive](https://archive.org/details/documentary-europa-the-last-battle_202112)
+* **American Moon (2017)** [Bitchute](https://www.bitchute.com/video/eZramDBFkXRU) | [Odysee](https://odysee.com/@TheTruthHurts:7/American-Moon-2017:5)
 
 
 **America: Freedom to Fascism** [Odysee](https://odysee.com/@mygreatawakening:0/2006---America-Freedom-To-Fascism:0) | [Rumble](https://rumble.com/v24okz2-america-freedom-to-fascism-by-aaron-russo.html) | [Internet Archive](https://archive.org/details/freedom_to_fascism)
