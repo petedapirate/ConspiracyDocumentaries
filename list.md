@@ -10,11 +10,11 @@
 ## Israel
 
 * **Why The Jews Are Not God's Chosen People (2024)** [Youtube](https://www.youtube.com/watch?v=zN5lvSoICOI) | [Odysee](https://odysee.com/@fbfone:2/Why-the-Jews-Are-Not-God's-Chosen-People-(2024):f)
-* **Marching to Zion** [Bitchute](https://www.bitchute.com/video/BTkVfJNeUVe6) | [Internet Archive](https://archive.org/details/youtube-lvYg807dyFk) | [Odysee](https://odysee.com/@TrueHistory:2/Marching-to-Zion---documantary-(Full-Movie).-God's-chosen-people.-Pastor-Steven-Anderson:6)
+* **Marching to Zion (2015)** [Bitchute](https://www.bitchute.com/video/BTkVfJNeUVe6) | [Internet Archive](https://archive.org/details/youtube-lvYg807dyFk) | [Odysee](https://odysee.com/@TrueHistory:2/Marching-to-Zion---documantary-(Full-Movie).-God's-chosen-people.-Pastor-Steven-Anderson:6)
 * **Israel's Second 9/11: How Zionism Conquered JFK, America, and Palestine** [Odysee](https://odysee.com/@QuantumRhino:9/Israel%27s-Second-9-11--How-Zionism-Conquered-JFK,-America,-and-Palestine-%282024%29:5)
-* **Roadmap to Apartheid** [Odysee](https://odysee.com/@TheHiddenMystery:c/roadmap-to-apartheid:c)
+* **Roadmap to Apartheid (2012)** [Odysee](https://odysee.com/@TheHiddenMystery:c/roadmap-to-apartheid:c)
 * **Are The Jews God's Chosen People?** [Odysee](https://odysee.com/@hipsterious:3/Are-the-Jews-Gods-Chosen-People2:2)
-* **In The Name of Zion** [Rumble](https://rumble.com/v25onps-documentary-in-the-name-of-zion.-when-you-know-the-truth-you-cannot-be-deci.html) | [Internet Archive](https://archive.org/details/inthenameofzion)
+* **In The Name of Zion (2020)** [Rumble](https://rumble.com/v25onps-documentary-in-the-name-of-zion.-when-you-know-the-truth-you-cannot-be-deci.html) | [Internet Archive](https://archive.org/details/inthenameofzion)
 * **Occupied (2024)** [Rumble](https://rumble.com/v5smqjz-occupied-world-premiere.html) | [Internet Archive](https://archive.org/details/occupied_202411) | [Odysee](https://odysee.com/@greatawakening:c/occupied:a)
 * **Israelism (2023)** [Odysee](https://odysee.com/@QuestionTheAnswers:2/Israelism:13) | [Rumble](https://rumble.com/v6vppff-israelism-2023.html)
 * **The Occupation of the American Mind (2016)** [Odysee](https://odysee.com/@Qwinten:b/THE-OCCUPATION-OF-THE-AMERICAN-MIND:29)
